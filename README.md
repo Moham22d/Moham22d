@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Moham22d
+- I'm currently learning: Javascript, Java, Python (20% Web Development)
+- how to reach me: Mohamm2d.#1221
